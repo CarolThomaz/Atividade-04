@@ -1,5 +1,5 @@
 # Atividade-04
-Poluição do Rio Sena - Ranking de Medalhas
+Poluição do Rio Sena - Curiosidades
 **_Poluição do Rio-Sena, cancelamento de treinos e doenças de atletas_**
 
 Principal bandeira das Olimpíadas de Paris, a despoluição do Rio Sena se tornou a maior polêmica. Houve treinos cancelados, prova adiada, críticas à qualidade da água e atletas com problemas de saúde depois de nadarem no local.
