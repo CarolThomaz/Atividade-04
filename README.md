@@ -29,3 +29,5 @@ A triatleta Claire Michel chegou a ficar internada em Paris, o que fez a Bélgic
 | 7 hectares (aprox.) | jardins e parques; |
 | 120.000 m² | escritórios e serviços municipais; |
 | 3.200 m² | “lojas de bairro." |
+
+![image](https://jornaljf.com.br/wp-content/uploads/2024/02/image-8.png)
